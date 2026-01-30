@@ -1,0 +1,1 @@
+Through this data analytics course, I hope to develop strong analytical and technical skills using real-world tools and datasets. My goal is to prepare for a corporate data analytics role by learning how to analyze data, communicate insights clearly, and support business decision-making with data.
